@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Aze
+- 👀 I’m interested nothing really
+- 🌱 I’m currently learning Rust
+- 💞️ I'm looking after AXL
+- 📫 How to reach me: you can't
+- 😄 Pronouns: nick/her
+- ⚡ Fun fact: AXL is my femboy
